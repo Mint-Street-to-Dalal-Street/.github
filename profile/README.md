@@ -1,5 +1,9 @@
 # Mint Street to Dalal Street
 
+[Survival of The Friendliest: The Timeless Indian Classic Tale of The Battle of The Bear Cartel and The Messiah of Investors](https://mintstreettodalalstreet.blogspot.com/2023/04/survival-of-the-friendliest.html) - April 2023
+
+[The Bazooka of Kurado: The Story of The Boldest Experiment with Ultra Easy Monetary Policy of Our Time](https://mintstreettodalalstreet.blogspot.com/2023/03/the-bazooka-of-kurado.html) - March 2023
+
 [Poor Bills can Dream, Weak Bills can Hope, Rich Bills will Stay Foreign, No Matter Where in The World: Living at A Time when Every Other Country is in A Fine Economic Mess](https://mintstreettodalalstreet.blogspot.com/2023/02/poor-bills-can-dream-weak-bills-can-hope-rich-bills-will-stay-foreign-no-matter-where-in-the-world.html) - February 2023
 
 [If You Are Stuck in A Hole and maybe Things are Not Going Well, You will Come Out Stronger: From Raising Capital to Giving First Boston A Second Chance, Credit Suisse is Going All Out to Prove Itself](https://mintstreettodalalstreet.blogspot.com/2023/01/if-you-are-stuck-in-a-hole-and-maybe-things-are-not-going-well-you-will-come-stronger.html) - January 2023
