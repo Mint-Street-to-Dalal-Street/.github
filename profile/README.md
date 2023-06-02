@@ -1,5 +1,7 @@
 # Mint Street to Dalal Street
 
+[Get Together, Get it Wrong, Break up, Try Again: The Magnetic Relationship of Foreign Banks with India](https://mintstreettodalalstreet.blogspot.com/2023/05/get-together-get-it-wrong-break-up-try-again.html) - May 2023
+
 [Survival of The Friendliest: The Timeless Indian Classic Tale of The Battle of The Bear Cartel and The Messiah of Investors](https://mintstreettodalalstreet.blogspot.com/2023/04/survival-of-the-friendliest.html) - April 2023
 
 [The Bazooka of Kurado: The Story of The Boldest Experiment with Ultra Easy Monetary Policy of Our Time](https://mintstreettodalalstreet.blogspot.com/2023/03/the-bazooka-of-kurado.html) - March 2023
