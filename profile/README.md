@@ -1,5 +1,7 @@
 # Mint Street to Dalal Street
 
+[Hey La Niña, El Niño is Back Alright: How A Certain Future of Droughts, Fires, Cyclones and Floods Turned Climate Change Activists into Accountants](https://mintstreettodalalstreet.blogspot.com/2023/07/hey-la-nina-el-nino-is-back-alright.html) - July 2023
+
 [How Low Can They Go: Watching The US Debt Ceiling Drama Unfold against The Backdrop of The American Dream](https://mintstreettodalalstreet.blogspot.com/2023/06/how-low-can-they-go.html) - June 2023
 
 [Get Together, Get it Wrong, Break up, Try Again: The Magnetic Relationship of Foreign Banks with India](https://mintstreettodalalstreet.blogspot.com/2023/05/get-together-get-it-wrong-break-up-try-again.html) - May 2023
