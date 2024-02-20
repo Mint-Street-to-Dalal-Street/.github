@@ -8,4 +8,4 @@ Mint Street to Dalal Street is all about
 
 -💡 Stacking all available documents for reference.
 
--🍵 Mastering the art of brewing data.
+-🍵 Mastering the art of brewing financial data.
